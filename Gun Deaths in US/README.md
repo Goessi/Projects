@@ -1,1 +1,1 @@
-explor the death rate in US
+explor the gun death rate in US
